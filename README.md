@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Holman1203
-- 👀 I’m interested in pyhton, html, java script and c++
+- 👀 I’m interested in python, html, java script and c++
 - 🌱 I’m currently learning on building my portfolio and learning coding
 - 💞️ I’m looking to collaborate on how to perfect my skill in programming language i mention above.
 - 📫 How to reach me +2348130728581 whatsapp or linkedin.com/in/emmanuel-samuel-924124221 on linkdln account
